@@ -2,7 +2,8 @@
  
  <p align="center">$$ \color{#787878}{ \huge \text{ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ }} $$
 
-[(..◜ᴗ◝..)](https://madebyvivs.carrd.co/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://i.postimg.cc/2LrcgwRP/rbwvt3.gif)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎[(˵◝ ⩊  ◜˵マ](https://vivis.atabook.org/)
+
+[(˶ˆᗜˆ˵)](https://discord.com/users/840014721968635944)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[(..◜ᴗ◝..)](https://madebyvivs.carrd.co/)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://i.postimg.cc/2LrcgwRP/rbwvt3.gif)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎[(˵◝ ⩊  ◜˵マ](https://vivis.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [(๑ᵔ⤙ᵔ๑)](https://rentry.co/vvancunin)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 $$ \color{#787878}{ \huge \text{﹒read socials b4 you int! ☆ }} $$
 
