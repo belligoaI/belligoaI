@@ -17,7 +17,7 @@ $$ \color{#787878}{ \huge \text{﹒＞＜﹒DO NOT interact if your under 15﹒ 
 
                                            
   
- ![](https://cdn.discordapp.com/attachments/901179565588766820/1537578480932233276/Untitled32_20260813184348.png?ex=6a8035cc&is=6a7ee44c&hm=be67cf5158b4f746946bcd5f3446ace9a7996e27cb6415a18178b20c4dbe17a2&)
+ ![](https://i.imgur.com/njlq6yi.png)
 
 
 
